@@ -9,32 +9,26 @@ tags:
   - nhà đầu tư 1970
 ---
 1. Tầng lớp cao cấp nhất - con cáo\
-Đây là tầng lớp kiếm tiền từ chính trị, chính sách, quan chức, buôn vua. Tầng lớp này có thể khuynh đảo, tiêu diệt, cướp, làm thịt, tất cả những tầng lớp phía sau đây.
-
+   Đây là tầng lớp kiếm tiền từ chính trị, chính sách, quan chức, buôn vua. Tầng lớp này có thể khuynh đảo, tiêu diệt, cướp, làm thịt, tất cả những tầng lớp phía sau đây.
 2. Những nhà đầu cơ - con khỉ\
-Là những nhà đầu cơ tài chính chứng khoán, đầu cơ bất động sản, đầu cơ tiền tệ, vàng, những con khôn ngoan có thể tránh được những sự cướp bóc của chính sách, cũng như chộp giật được cơ hội (bằng cách nào tránh được kiếp nạn khỉ này để trở thành con khỉ thông minh tôi sẽ trình bày ở dưới)
-
+   Là những nhà đầu cơ tài chính chứng khoán, đầu cơ bất động sản, đầu cơ tiền tệ, vàng, những con khôn ngoan có thể tránh được những sự cướp bóc của chính sách, cũng như chộp giật được cơ hội (bằng cách nào tránh được kiếp nạn khỉ này để trở thành con khỉ thông minh tôi sẽ trình bày ở dưới)
 3. Chủ doanh nghiệp - con cừu\
-(nuôi để vặt lông)\
-Tầng lớp ông chủ doanh nghiệp này tưởng rằng cao sang nhưng thực chất bị 2 tầng lớp trên bóc lột rất thậm tệ nếu như không tỉnh táo có thể chết bất kì lúc nào.\
-\
-Ví dụ: Một doanh nghiệp đầu tư 5 tỷ, mỗi năm lãi 1 tỷ = 20% thì bị lạm phát xơi tái mất 15%, lãi thực chỉ còn 5%. Nó giống như một con bò leo lên dốc được 20 mét thì bị hai thằng ở dưới kéo tụt xuống 15 mét. Lạm phát chính là do hai thằng trên đầu nó gây ra. Vì thế nhiều doanh nghiệp làm lụng 20 năm xây cơ đồ nhưng bỗng chốc lạm phát cao => phá sản, mất trắng.\
-(bằng cách nào tránh được kiếp nạn con cừu này tôi sẽ trình bày sau)
-
+   (nuôi để vặt lông)\
+   Tầng lớp ông chủ doanh nghiệp này tưởng rằng cao sang nhưng thực chất bị 2 tầng lớp trên bóc lột rất thậm tệ nếu như không tỉnh táo có thể chết bất kì lúc nào.\
+   \
+   Ví dụ: Một doanh nghiệp đầu tư 5 tỷ, mỗi năm lãi 1 tỷ = 20% thì bị lạm phát xơi tái mất 15%, lãi thực chỉ còn 5%. Nó giống như một con bò leo lên dốc được 20 mét thì bị hai thằng ở dưới kéo tụt xuống 15 mét. Lạm phát chính là do hai thằng trên đầu nó gây ra. Vì thế nhiều doanh nghiệp làm lụng 20 năm xây cơ đồ nhưng bỗng chốc lạm phát cao => phá sản, mất trắng.\
+   (bằng cách nào tránh được kiếp nạn con cừu này tôi sẽ trình bày sau)
 4. Tầng lớp làm công ăn lương, dưới đáy xã hội - con lừa\
-(Tầng lớp bị cả 3 tầng lớp trên lột)\
-Ví dụ như lương 3 triệu mấy năm chả tăng nổi nhưng thịt cá, rau cứ tăng vèo vèo. Cứ hùng hục làm như trâu như bò mà ráo mồ hôi cái là hết tiền, cuộc sống luôn luôn khốn khổ, chỉ có một số ít đủ sống do làm được công ty tốt hoặc công ty nước ngoài (Bí quyết từ con lừa tay không để leo lên các tầng trên như thế nào? cái này là cả một kho kiến thức đấy)
+   (Tầng lớp bị cả 3 tầng lớp trên lột)\
+   Ví dụ như lương 3 triệu mấy năm chả tăng nổi nhưng thịt cá, rau cứ tăng vèo vèo. Cứ hùng hục làm như trâu như bò mà ráo mồ hôi cái là hết tiền, cuộc sống luôn luôn khốn khổ, chỉ có một số ít đủ sống do làm được công ty tốt hoặc công ty nước ngoài (Bí quyết từ con lừa tay không để leo lên các tầng trên như thế nào? cái này là cả một kho kiến thức đấy)
 
 **Con khỉ thông minh**\
 Trong xã hội đôi khi người giàu lại không phải những kẻ làm nhiều mà lại là những người biết quan sát sự dịch chuyển của đồng tiền trong xã hội. Vì thế mới sinh ra tầng lớp đầu cơ như con khỉ. Tầng lớp khỉ và cáo luôn sở hữu đến 80% tài sản của xã hội. Tầng lớp làm thực sự là cừu và lừa thì họ lại sở hữu rất ít.\
 Có 4 loại tài sản chính để hình thành nên sự giàu có
 
 1. Bất động sản
-
 2. Cổ phiếu
-
 3. Vàng
-
 4. Tiền tệ
 
 \
@@ -104,10 +98,12 @@ Muốn có nợ xấu nhiều thì phải vay ngân hàng nhiều và không tr�
 Nhóm tin anh đã thiết kế ra trò chơi thị trường chứng khoán, thị trường bất động sản, thị trường vàng, tạo sóng để cho người chơi tham gia vào, cụ thể mua bán giá với mục đích lấy hết tiền của người tham gia.\
 \
 Từ năm 1991-1994, rất nhiều ngân hàng được thành lập với vốn rất nhỏ:\
-- 1992 Ngân Hàng Đông Á thành lập với vốn 20 tỷ VNĐ với 56 nhân viên.\
-- 1992 Eximbank chính thức đi vào hoạt động với vốn 50 tỷ VNĐ.\
-Nhìn số vốn các ngân hàng 2015 đa phần là trên 10.000 tỷ VNĐ.\
+
+* 1992 Ngân Hàng Đông Á thành lập với vốn 20 tỷ VNĐ với 56 nhân viên.\
+* 1992 Eximbank chính thức đi vào hoạt động với vốn 50 tỷ VNĐ.
+
 \
+Nhìn số vốn các ngân hàng 2015 đa phần là trên 10.000 tỷ VNĐ.\
 Ngân hàng là nợ huy động tiền của người gửi tiền vào và cho vay đối với những người cần tiền, họ vay và trả lãi suất.\
 \
 Người gửi tiền vào ngân hàng là tiền họ tiết kiệm, kinh doanh có lời để hưởng lãi suất tiết kiệm. Họ ngây thơ không hiểu rõ bản chất về ngân hàng là gì nên có bao nhiêu tiền cứ nạp vào ngân hàng, họ nghĩ họ sẽ an toàn\
@@ -123,11 +119,13 @@ Kết qủa của trò chơi nợ xấu: quy luật bảo toàn năng lượng t
 Nhóm tinh anh có rất nhiều tiền từ người chơi. Người chơi thì mất rất nhiều tiền, hệ thống ngân hàng thì có nhiều khoản nợ không thu được, nợ xấu tăng cao\
 \
 Giải quyết nợ xấu thực chất rất đơn giản:\
-Nợ xấu của hệ thống ngân hàng cao tức ngân hàng không thu được nợ, tức mất tiền hoặc mất tài sản của ngân hàng. Cách giải quyết lúc này là phải có thêm tiền mới hoặc làm sao để tài sản ngân hàng tăng lên.\
-- Cách thứ nhất, kêu gọi nhóm lợi ích, nhóm gia đình chủ tịch ngân hàng phải trả tiền cho ngân hàng, hay bắt nhóm tinh anh trả tiền cho ngân hàng: cách này dường như không khả thi lắm. Nếu làm được cách này thì dân VN không có khổ.\
-- Cách thứ hai: kêu gọi bọn tư bản nước ngoài vào mua tài sản, mua cổ phần của ngân hàng và đưa tiền cho ngân hàng để ngân hàng giảm nợ xấu. Cách này đang làm, đó là cho nước ngoài sở hữu ngân hàng.\
-- Cách thứ ba: cho nhóm tinh anh vào sở hữu ngân hàng, mua cổ phần ngân hàng, đóng góp tiền vào thì nợ xấu giảm.\
-- Cách thứ tư: xoá hết nợ của nhóm lợi ích, nhóm gia đình chủ tịch ngân hàng bằng cách xác nhập ngân hàng, mua ngân hàng giá 0 đồng. Đặc biệt cách này phải dùng ngân sách của nhà nước để thực hiện, cách này làm dân khổ thêm vì tiền thuế của họ được dùng để xoá nợ cho các chủ nợ.\
+Nợ xấu của hệ thống ngân hàng cao tức ngân hàng không thu được nợ, tức mất tiền hoặc mất tài sản của ngân hàng. Cách giải quyết lúc này là phải có thêm tiền mới hoặc làm sao để tài sản ngân hàng tăng lên.
+
+* Cách thứ nhất, kêu gọi nhóm lợi ích, nhóm gia đình chủ tịch ngân hàng phải trả tiền cho ngân hàng, hay bắt nhóm tinh anh trả tiền cho ngân hàng: cách này dường như không khả thi lắm. Nếu làm được cách này thì dân VN không có khổ.\
+* Cách thứ hai: kêu gọi bọn tư bản nước ngoài vào mua tài sản, mua cổ phần của ngân hàng và đưa tiền cho ngân hàng để ngân hàng giảm nợ xấu. Cách này đang làm, đó là cho nước ngoài sở hữu ngân hàng.\
+* Cách thứ ba: cho nhóm tinh anh vào sở hữu ngân hàng, mua cổ phần ngân hàng, đóng góp tiền vào thì nợ xấu giảm.\
+* Cách thứ tư: xoá hết nợ của nhóm lợi ích, nhóm gia đình chủ tịch ngân hàng bằng cách xác nhập ngân hàng, mua ngân hàng giá 0 đồng. Đặc biệt cách này phải dùng ngân sách của nhà nước để thực hiện, cách này làm dân khổ thêm vì tiền thuế của họ được dùng để xoá nợ cho các chủ nợ.
+
 \
 Tương lai những năm tới.\
 Vì hiện nay số liệu thống kê đến 2017 VN đang nợ tài phiệt tức nợ công là 3.100.000.000.000.000 VNĐ (3.1 triệu tỷ VNĐ) nên VN phải trả nợ hàng năm, không bao giờ trả hết\
